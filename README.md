@@ -1,3 +1,8 @@
+
+----------------------------------------------------------------------------------------------------------------------
+                                       DONT INSTALL OR OPEN WE FOUNDED OUT THE FILE THAT GIVE YOUR FILES BACK DOESNT WORK
+
+
 Official OMG python Ransomeware OPEN SOURCE
 WARNING education purpose do not try it or use it to someone !
 this is only for student that are trying to learn hacks trojans rats grabbers ransomewares malwares HiJacks phising 
